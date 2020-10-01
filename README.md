@@ -44,3 +44,11 @@ _Cada uno de nosotros escogimos sin dudar una página web con la intención de r
 _Por otra parte, nos interesa mucho el tema de saber que tan activos son hoy en día en el mercado comercial. También buscamos compararlos con propias experiencias que hemos tenido emprendiendo._
 
 **Tenemos como alcance descubrir porque estas marcas son tan codiciadas sin importar el elevado precio que tienen, para asi poder crecer con nuestro emprendimiento a futuro y ponerlo en practica.**
+
+# COMPARACIÓN #
+• _Entre las marcas TOMMY HILFIGER, GUESS Y CALVIN KLEIN logramos sacar que son tiendas que estan repartidas por todo el mundo, como tienda presencial y online, pudimos apreciar que todas iniciaron siendo una marca de jeans y luego se expandieron con más variedades de productos para ofrecer._
+
+• _Una comparación en el ranking sitúa a estas 3 marcas dentro del top 10._
+
+• _Destacadas por una gran calidad en sus productos y un precio muy elevado._
+
