@@ -8,7 +8,9 @@
 
 ## ¿Donde podemos encontrar sus tiendas?
  • La marca Tommy Hilfiger esta distribuida por casi todo el mundo.
+ 
  • Realiza envios a todo el mundo mediante compras online.
+ 
  • Sus fabricas estan en China, Filipinas, Sri Lanka, entre otros países asiáticos.
  
  # GUESS #
@@ -21,6 +23,7 @@
 
 ## ¿Donde podemos encontrar sus tiendas? ##
 • Por todo el mundo podemos encontrar la marca **GUESS** dentro de centros comerciales y outlets.
+
 • Realiza envios a todo el mundo mediante compra online.
 
 # CALVIN KLEIN #
@@ -33,6 +36,7 @@
  
 ## ¿Donde podemos encontrar sus tiendas? ##
  • Calvin Klein es una marca distribuida por casi todo el mundo, mayormente se encuentra en centros comerciales y outlets.
+ 
  • Puedes realizar comprar vía internet y el despacho se hará a tu domicilio. 
 
 # OBJETIVO #
