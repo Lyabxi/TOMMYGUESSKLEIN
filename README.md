@@ -22,3 +22,8 @@
 ## ¿Donde podemos encontrar sus tiendas? ##
 • Por todo el mundo podemos encontrar la marca **GUESS** dentro de centros comerciales y outlets.
 • Realiza envios a todo el mundo mediante comprar online.
+
+# CALVIN KLEIN #
+[![N|Solid](https://i.pinimg.com/564x/ce/08/24/ce082447ecfd2ca748629cafe1d98737.jpg)](https://www.calvinklein.cl/mujer?utm_source=google&utm_medium=search&utm_campaign=cl_2020_alwayson&utm_content=adwords_womens_1st)
+
+**Calvin Klein** _es una marca de estilo de vida de nivel internacional de ropa que encarna ideales audaces y progresistas a través de una estética seductora, minimalista y estética. Buscamos emocionar e inspirar a nuestra audiencia con imágenes provocativas e impresionantes diseños que despierten los sentidos._
