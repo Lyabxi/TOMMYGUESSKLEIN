@@ -38,3 +38,4 @@
 # OBJETIVO #
 _Cada uno de nosotros escogimos sin dudar una página web con la intención de rescatar la mayor información posible para poder ver los materiales utilizados, analizarlos, e informarnos de lo que podría llegar a gastarse y ver si se puede economizar mucho más. La innovación e autenticidad son unos de los grandes puntos que queremos tratar y desarrollar, por ende, trataremos de sacar detallada información para aprender técnicas  en las cuales podríamos inspirarnos._
 _Por otra parte, nos interesa mucho el tema de saber que tan activos son hoy en día en el mercado comercial. También buscamos compararlos con propias experiencias que hemos tenido emprendiendo._
+**Tenemos como alcance descubrir porque estas marcas son tan codiciadas sin importar el elevado precio que tienen, para asi poder crecer con nuestro emprendimiento a futuro y ponerlo en practica.**
