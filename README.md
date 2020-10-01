@@ -14,7 +14,7 @@
  # GUESS #
  [![N|Solid](https://www.vectorkhazana.com/assets/images/products/Gues.jpg)](https://www.guess.cl/)
 
-**GUESS** _es una marca de líneas de ropa a nivel mundial. Usa como emblema el signo de interrogación ?. Es conocida por su publicidad con alto contenido erótico,[cita requerida] en la que destacan anuncios de televisión y vallas publicitarias. Fue fundada en el año 1981 por los hermanos Marciano._
+**GUESS** _es una marca de líneas de ropa a nivel mundial. Usa como emblema el signo de interrogación "?". Es conocida por su publicidad con alto contenido erótico, en la que destacan anuncios de televisión y vallas publicitarias. Fue fundada en el año 1981 por los hermanos Marciano._
 
 ## ¿Que nos ofrece Guess? ##
  • Hoy en día GUESS es una marca de estilo de vida verdaderamente **global** con una gama completa de denim, ropa y accesorios ofrecidos en más de 80 países de todo el mundo.
